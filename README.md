@@ -1,0 +1,1 @@
+I created my budget tracker to monitor my daily expenses. This will help me avoid over spending but rather help me save some money for future use. 
